@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Kendall-Blanco
+- 👀 I’m interested in learning how to code in World of Warcraft 3.3.5a
+- 💞️ I’m looking to collaborate on Azeroth Core
+- 📫 How to reach me --> Discord: Mj Nunuu #9015--
